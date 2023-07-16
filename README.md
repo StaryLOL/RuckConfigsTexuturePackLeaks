@@ -3,3 +3,5 @@ so now snoopy will run out of buisness and other people who can configs with pri
 wont be so speacial anymore 
 
 so i decided since he made a video on it i might aswel leak his packs 
+
+also i am doing this because he skidded snoopy's render
